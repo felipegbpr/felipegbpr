@@ -1,6 +1,8 @@
-# 🙋‍♂️ Felipe Gomes Borges
+# Hi there 🙋‍♂
 
-Web developer looking for knowledge and challenges to remain constantly evolving, passionate about technology and learning.
+I'm Felipe Borges, a Web developer.
+
+I look for knowledge and challenges to keep me constantly evolving, passionate about technology and learning.
 
 ### Connect with me
 
