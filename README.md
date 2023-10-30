@@ -1,6 +1,6 @@
 # 🙋‍♂️ Felipe Gomes Borges
 
-Web developer looking for knowledge and challenges to remain constantly evolving, passionate about technology and learning..
+Web developer looking for knowledge and challenges to remain constantly evolving, passionate about technology and learning.
 
 ### Connect with me
 
